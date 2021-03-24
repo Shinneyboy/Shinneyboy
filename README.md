@@ -1,4 +1,4 @@
-So, GitHub told me I should write something about me here so im just gonna do that i guess  ¯\_ツ_/¯.
+So, GitHub told me I should write something about me here so im just gonna do that i guess  🤷‍♂️.
 
 -> Currently 16 Years old
 
