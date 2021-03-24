@@ -2,6 +2,8 @@ So, GitHub told me I should write something about me here so im just gonna do th
 
 -> Currently 16 Years old
 
+-> Really into Frenchcore, Speedcore
+
 -> Living in Bavaria, Germany
 
 -> Starting with Python, Expierenced in Game Cheating, used Cheat Engine and Luascripts for my Cheats
